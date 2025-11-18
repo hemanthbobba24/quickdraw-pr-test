@@ -1,2 +1,2 @@
-Hi 😊😊
+Hi
 How are you??
